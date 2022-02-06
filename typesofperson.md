@@ -35,7 +35,7 @@ back to the main post
 quick note: VICKI IF YOU'RE HERE PLEASE LEAVE RIGHT NOW OR ELSE YOU'LL GET IN A BAD MOOD!
 can get into bad mood very easily
 16. Cals: doesn't talk to me 99% of the time so no information can be gathered
-17. Jackal: idk how to describe either
+17. Jackal: removed from list by manual request
 18. Nate: a very rare chance of chatting, usually between 0.02% - 0.2%, odds increase in the past.
 19. I'm a Sheep/Mr. Mouton iirc (old): hates discord support and the new MEE6 management team
 20. Supernaturalist: doesnt like the new MEE6 management team for whatever reason
