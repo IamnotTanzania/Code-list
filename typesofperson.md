@@ -25,7 +25,7 @@ back to the main post
 **9.** Gwplaz: The person who can't word them right
 
 **10.** Majick: likes doing tiktok, but rarely gets 1k views per video.
-### Honorable Mentions
+## Honorable Mentions
 
 11. Sil: always invisible (like my bot's uptime), typo cadet (htat), and can write in caps unlike other ranchers which they will get warned for writing in caps
 12. Anis: a rare drop from meteor/a rare chance of chatting/support, and usually in MEE6 (NFTs) server announcements
