@@ -34,7 +34,7 @@ back to the main post
 15. Vicki:
 quick note: VICKI IF YOU'RE HERE PLEASE LEAVE RIGHT NOW OR ELSE YOU'LL GET IN A BAD MOOD!
 can get into bad mood very easily
-16. Cals: idk how to describe
+16. Cals: doesn't talk to me 99% of the time so no information can be gathered
 17. Jackal: idk how to describe either
 18. Nate: a very rare chance of chatting, usually between 0.02% - 0.2%, odds increase in the past.
 19. I'm a Sheep/Mr. Mouton iirc (old): hates discord support and the new MEE6 management team
@@ -47,3 +47,13 @@ can get into bad mood very easily
 26. Jamie: very cool, just like the pfp, but not in the other pfps tho
 27. Isha: Erm, it's a bot with mod? (Credits to Jamie), and Shirin's lil sis
 28. Shirin: original version of isha
+29. Z_runner: wait, this is a Minecraft player??? AND IN FRENCH???
+30. NoHandsMcGhee: For somehow they're a mod WITH ZERO ACTIVITIES, do talk in VCs tho
+31. Mashiron: ZERO ACTIVITIES AND BEING A SUPPORT REPRESENTATIVE, HOW THE HELL IS THIS POSSIBLE???
+32. big portion / vai: that's too big for a portion, either way they're a MC Server Admin
+33. wellskilled: the only person with da best about me, OK wording
+34. Spongebob: wait how is this an Indian, said that he comitted tax fraud but in reality didnt
+35. Laurentiu: Romanian wording is certainly impossible for me to understand, contains Vietnamese's wording as well
+36. Icantfixmyname: his name is fixed but got drop tested too many times, and i wanna pat his old pfp
+37. Impala: yea idk how to say about this since they are nowhere to be found in 2022.
+38. Bipole: mega meme poster
