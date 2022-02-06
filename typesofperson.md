@@ -61,3 +61,14 @@ can get into bad mood very easily
 40. Lockey: oldest moderator (possibly), but cannot be found in 2022
 41. Google: you thought he owns Google, but not, also nice status
 42. Woody: moderation actions can always happen with this guy around
+43. RealSGII2: coding4life, also a lower-level Kutlu, and likes to call me rood
+44. John Green: i tried to make him blue but didnt work, also responds pretty calm
+45. 183: he has 183 of nothing, because he has more than 183 of everything, no information can be gathered
+46. Toasty: im figuring out if this is man or girl
+47. Annie: i thought its Anne from Amphibia, and i found out that she's trans (probably went back to male)
+48. Skadoodle: owns Skadhub
+49. Birdie: no information can be gathered 
+**50.** Futi: tuvalu has funafuti, other than that looks pretty harsh imo
+51. Toni: his messages are like MC potion effects
+52. gort: this guy has the same amount of name as how many times I've forgot my password in all websites in total
+to be continued
