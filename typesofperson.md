@@ -58,3 +58,6 @@ can get into bad mood very easily
 37. Impala: yea idk how to say about this since they are nowhere to be found in 2022.
 38. Bipole: mega meme poster
 39. Speedyminer: doesn't mine but chat
+40. Lockey: oldest moderator (possibly), but cannot be found in 2022
+41. Google: you thought he owns Google, but not, also nice status
+42. Woody: moderation actions can always happen with this guy around
