@@ -68,6 +68,7 @@ can get into bad mood very easily
 47. Annie: i thought its Anne from Amphibia, and i found out that she's trans (probably went back to male)
 48. Skadoodle: owns Skadhub
 49. Birdie: no information can be gathered 
+
 **50.** Futi: tuvalu has funafuti, other than that looks pretty harsh imo
 
 51. Toni: his messages are like MC potion effects
