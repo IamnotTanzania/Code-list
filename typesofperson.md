@@ -57,3 +57,4 @@ can get into bad mood very easily
 36. Icantfixmyname: his name is fixed but got drop tested too many times, and i wanna pat his old pfp
 37. Impala: yea idk how to say about this since they are nowhere to be found in 2022.
 38. Bipole: mega meme poster
+39. Speedyminer: doesn't mine but chat
