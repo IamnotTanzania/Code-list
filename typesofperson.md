@@ -73,7 +73,4 @@ can get into bad mood very easily
 
 51. Toni: his messages are like MC potion effects
 52. gort: this guy has the same amount of name as how many times I've forgot my password in all websites in total
-53. Sapphire: i can only describe in 2 lines:
-you: sapphire is [random words here]
-
-sapphire: let's not talk about that
+53. Sapphire: you: sapphire is [random words here], sapphire: let's not talk about that
