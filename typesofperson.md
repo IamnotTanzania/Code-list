@@ -74,3 +74,11 @@ can get into bad mood very easily
 51. Toni: his messages are like MC potion effects
 52. gort: this guy has the same amount of name as how many times I've forgot my password in all websites in total
 53. Sapphire: you: sapphire is [random words here], sapphire: let's not talk about that
+54. Letra: The wording is complex even though he's British
+55. 张晨悦 chenyue (what's this person nickname): "lives in australia with asian heritage", thats true since they're a blink, midzy and neverland, and so much more
+56. AR: this guy makes another bot, and there's a roblox youtuber named AR at the same time, who came first?
+57. advaith: very rare chance of chatting, you may be seeing him once and never again
+58. Elevator Girl: doesnt like being ignored, and this is a girl so easily understandable
+59. Verderubro: is this the Jorge they've been talking about?
+60. ruthles_kila: no information can be gathered due to no activities (at least when im on)
+61. Others: PLEASE ADD ME!!! YOU MISSED ME!!!
