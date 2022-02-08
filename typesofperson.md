@@ -76,7 +76,7 @@ can get into bad mood very easily
 53. Sapphire: you: sapphire is [random words here], sapphire: let's not talk about that
 54. Letra: The wording is complex even though he's British
 55. 张晨悦 chenyue (what's this person nickname): "lives in australia with asian heritage", thats true since they're a blink, midzy and neverland, and so much more
-56. AR: this guy makes another bot, and there's a roblox youtuber named AR at the same time, who came first?
+56. AR: this guy makes another bot, and there's a roblox youtuber named AR, who came first?
 57. advaith: very rare chance of chatting, you may be seeing him once and never again
 58. Elevator Girl: doesnt like being ignored, and this is a girl so easily understandable
 59. Verderubro: is this the Jorge they've been talking about?
