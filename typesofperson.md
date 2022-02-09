@@ -27,11 +27,12 @@ back to the main post
 **10.** Majick: likes doing tiktok, but rarely gets 1k views per video.
 ## others (if you're missed please go to the issues section)
 
-11. Sil: always invisible (like my bot's uptime), typo cadet (htat), and can write in caps unlike other ranchers which they will get warned for writing in caps
-12. Anis: a rare drop from meteor/a rare chance of chatting/support, and usually in MEE6 (NFTs) server announcements
-13. Dubs: very like music.
-14. ArcheryAce: like Gwplaz, but with better wording (weird wording do happen)
-15. Vicki:
+11. Ghosty: got banned from the server because uhh... a lot of reasons, and after a few years later he came back to life
+12. Sil: always invisible (like my bot's uptime), typo cadet (htat), and can write in caps unlike other ranchers which they will get warned for writing in caps
+13. Anis: a rare drop from meteor/a rare chance of chatting/support, and usually in MEE6 (NFTs) server announcements
+14. Dubs: very like music.
+15. ArcheryAce: like Gwplaz, but with better wording (weird wording do happen)
+16. Vicki:
 quick note: VICKI IF YOU'RE HERE PLEASE LEAVE RIGHT NOW OR ELSE YOU'LL GET IN A BAD MOOD!
 can get into bad mood very easily
 16. Cals: doesn't talk to me 99% of the time so no information can be gathered
