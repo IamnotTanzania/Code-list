@@ -98,4 +98,6 @@ can get into bad mood very easily
 75. Ulti: probably busy playing with dog
 76. Australian doggo: having a super long dinner and makes an already-dead discord bot
 77. Dani: hi-ers
-78. Others: *writes in the issues section*
+78. Mr. Squishy: he got squished for 2 million years so can't talk, at least that's to my knowledge
+79. Verdant: sounds like a mobile career
+80. Others: *writes in the issues section*
