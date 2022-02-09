@@ -25,7 +25,7 @@ back to the main post
 **9.** Gwplaz: The person who can't word them right
 
 **10.** Majick: likes doing tiktok, but rarely gets 1k views per video.
-## Honorable Mentions
+## others (if you're missed please go to the issues section)
 
 11. Sil: always invisible (like my bot's uptime), typo cadet (htat), and can write in caps unlike other ranchers which they will get warned for writing in caps
 12. Anis: a rare drop from meteor/a rare chance of chatting/support, and usually in MEE6 (NFTs) server announcements
@@ -81,4 +81,5 @@ can get into bad mood very easily
 58. Elevator Girl: doesnt like being ignored, and this is a girl so easily understandable
 59. Verderubro: is this the Jorge they've been talking about?
 60. ruthles_kila: no information can be gathered due to no activities (at least when im on)
-61. Others: PLEASE ADD ME!!! YOU MISSED ME!!!
+61. Ray Fultz: probably the oldest person on the list, and likes banana
+62. Others: *writes in issues section*
