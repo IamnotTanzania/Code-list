@@ -82,4 +82,5 @@ can get into bad mood very easily
 59. Verderubro: is this the Jorge they've been talking about?
 60. ruthles_kila: no information can be gathered due to no activities (at least when im on)
 61. Ray Fultz: probably the oldest person on the list, and likes banana
-62. Others: *writes in issues section*
+62. ʍօtɦɛʀ👠Ꮶʊֆɦ: the person with the MOST complex wording, and still hold the record to this day, and this person is like a new discord user
+63. Others: *writes in the issues section*
