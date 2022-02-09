@@ -83,4 +83,5 @@ can get into bad mood very easily
 60. ruthles_kila: no information can be gathered due to no activities (at least when im on)
 61. Ray Fultz: probably the oldest person on the list, and likes banana
 62. ʍօtɦɛʀ👠Ꮶʊֆɦ: the person with the MOST complex wording, and still hold the record to this day, and this person is like a new discord user
-63. Others: *writes in the issues section*
+63. Danny (the Doggo): is this a real person or a dog that can type
+64. Others: *writes in the issues section*
