@@ -90,4 +90,8 @@ can get into bad mood very easily
 67. Peanut: totally not a peanut because of the pfp
 68. Eoria: "certified weeb"
 69. Gideon: is this the guy from Gravity Falls? other than that i cant find anything else
-70. Others: *writes in the issues section*
+70. Gafseet: he got into the mee6 team for some reason
+71. KaasToast: meme poster since whenever
+72. RCN: what's this
+73. SR_Plane: very in-between person
+74. Others: *writes in the issues section*
