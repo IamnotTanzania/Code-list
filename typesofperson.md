@@ -70,35 +70,35 @@ can get into bad mood very easily
 48. Skadoodle: owns Skadhub
 49. Birdie: no information can be gathered 
 
-**50.** Futi: tuvalu has funafuti, other than that looks pretty harsh imo
+**51.** Futi: tuvalu has funafuti, other than that looks pretty harsh imo
 
-51. Toni: his messages are like MC potion effects
-52. gort: this guy has the same amount of name as how many times I've forgot my password in all websites in total
-53. Sapphire: you: sapphire is [random words here], sapphire: let's not talk about that
-54. Letra: The wording is complex even though he's British
-55. 张晨悦 chenyue (what's this person nickname): "lives in australia with asian heritage", thats true since they're a blink, midzy and neverland, and so much more
-56. AR: this guy makes another bot, and there's a roblox youtuber named AR, who came first?
-57. advaith: very rare chance of chatting, you may be seeing him once and never again
-58. Elevator Girl: doesnt like being ignored, and this is a girl so easily understandable
-59. Verderubro: is this the Jorge they've been talking about?
-60. ruthles_kila: no information can be gathered due to no activities (at least when im on)
-61. Ray Fultz: probably the oldest person on the list, and likes banana
-62. ʍօtɦɛʀ👠Ꮶʊֆɦ: the person with the MOST complex wording, and still hold the record to this day, and this person is like a new discord user
-63. Danny (the Doggo): is this a real person or a dog that can type
-64. Mees: eww nitro
-65. Meeseeks: went to the amazon river so cant gather info
-66. Thomas_muur: you can only see them once and never again like advaith
-67. Peanut: totally not a peanut because of the pfp
-68. Eoria: "certified weeb"
-69. Gideon: is this the guy from Gravity Falls? other than that i cant find anything else
-70. Gafseet: he got into the mee6 team for some reason
-71. KaasToast: meme poster since whenever
-72. RCN: what's this
-73. SR_Plane: very in-between person
-74. Aleks: looks cool with the cat pfp, not in the other pfp tho like Jamie, and since he dont chat cant gather info
-75. Ulti: probably busy playing with dog
-76. Australian doggo: having a super long dinner and makes an already-dead discord bot
-77. Dani: hi-ers
-78. Mr. Squishy: he got squished for 2 million years so can't talk, at least that's to my knowledge
-79. Verdant: sounds like a mobile career
-80. Others: *writes in the issues section*
+52. Toni: his messages are like MC potion effects
+53. gort: this guy has the same amount of name as how many times I've forgot my password in all websites in total
+54. Sapphire: you: sapphire is [random words here], sapphire: let's not talk about that
+55. Letra: The wording is complex even though he's British
+56. 张晨悦 chenyue (what's this person nickname): "lives in australia with asian heritage", thats true since they're a blink, midzy and neverland, and so much more
+57. AR: this guy makes another bot, and there's a roblox youtuber named AR, who came first?
+58. advaith: very rare chance of chatting, you may be seeing him once and never again
+59. Elevator Girl: doesnt like being ignored, and this is a girl so easily understandable
+60. Verderubro: is this the Jorge they've been talking about?
+61. ruthles_kila: no information can be gathered due to no activities (at least when im on)
+62. Ray Fultz: probably the oldest person on the list, and likes banana
+63. ʍօtɦɛʀ👠Ꮶʊֆɦ: the person with the MOST complex wording, and still hold the record to this day, and this person is like a new discord user
+64. Danny (the Doggo): is this a real person or a dog that can type
+65. Mees: eww nitro
+66. Meeseeks: went to the amazon river so cant gather info
+67. Thomas_muur: you can only see them once and never again like advaith
+68. Peanut: totally not a peanut because of the pfp
+69. Eoria: "certified weeb"
+70. Gideon: is this the guy from Gravity Falls? other than that i cant find anything else
+71. Gafseet: he got into the mee6 team for some reason
+72. KaasToast: meme poster since whenever
+73. RCN: what's this
+74. SR_Plane: very in-between person
+75. Aleks: looks cool with the cat pfp, not in the other pfp tho like Jamie, and since he dont chat cant gather info
+76. Ulti: probably busy playing with dog
+77. Australian doggo: having a super long dinner and makes an already-dead discord bot
+78. Dani: hi-ers
+79. Mr. Squishy: he got squished for 2 million years so can't talk, at least that's to my knowledge
+80. Verdant: sounds like a mobile career
+81. Others: *writes in the issues section*
