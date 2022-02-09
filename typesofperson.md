@@ -86,4 +86,8 @@ can get into bad mood very easily
 63. Danny (the Doggo): is this a real person or a dog that can type
 64. Mees: eww nitro
 65. Meeseeks: went to the amazon river so cant gather info
-66. Others: *writes in the issues section*
+66. Thomas_muur: you can only see them once and never again like advaith
+67. Peanut: totally not a peanut because of the pfp
+68. Eoria: "certified weeb"
+69. Gideon: is this the guy from Gravity Falls? other than that i cant find anything else
+70. Others: *writes in the issues section*
