@@ -94,4 +94,8 @@ can get into bad mood very easily
 71. KaasToast: meme poster since whenever
 72. RCN: what's this
 73. SR_Plane: very in-between person
-74. Others: *writes in the issues section*
+74. Aleks: looks cool with the cat pfp, not in the other pfp tho like Jamie, and since he dont chat cant gather info
+75. Ulti: probably busy playing with dog
+76. Australian doggo: having a super long dinner and makes an already-dead discord bot
+77. Dani: hi-ers
+78. Others: *writes in the issues section*
