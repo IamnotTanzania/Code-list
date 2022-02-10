@@ -105,5 +105,5 @@ can get into bad mood very easily
 82. Phantom: is like an average discord user, idk why but i feel so
 83. Nobita2k: "plain human", not really plain
 84. Dubba: i dont see him
-85. Discord Pedestrian
+85. Discord Pedestrian: cannot find info, but can be possibly? found on the MEE6 Leaderboard
 86. Others: *writes in the issues section*
