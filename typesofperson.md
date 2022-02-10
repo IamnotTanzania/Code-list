@@ -102,4 +102,8 @@ can get into bad mood very easily
 79. Mr. Squishy: he got squished for 2 million years so can't talk, at least that's to my knowledge
 80. Verdant: sounds like a mobile career
 81. Atomization/Atom: the average person
-82. Others: *writes in the issues section*
+82. Phantom: is like an average discord user, idk why but i feel so
+83. Nobita2k: "plain human", not really plain
+84. Dubba: i dont see him
+85. Discord Pedestrian
+86. Others: *writes in the issues section*
