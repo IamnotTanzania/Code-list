@@ -101,4 +101,5 @@ can get into bad mood very easily
 78. Dani: hi-ers
 79. Mr. Squishy: he got squished for 2 million years so can't talk, at least that's to my knowledge
 80. Verdant: sounds like a mobile career
-81. Others: *writes in the issues section*
+81. Atomization/Atom: the average person
+82. Others: *writes in the issues section*
