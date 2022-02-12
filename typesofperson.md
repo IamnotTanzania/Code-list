@@ -52,7 +52,7 @@ can get into bad mood very easily
 30. NoHandsMcGhee: For somehow they're a mod WITH ZERO ACTIVITIES, do talk in VCs tho
 31. Mashiron: ZERO ACTIVITIES AND BEING A SUPPORT REPRESENTATIVE, HOW THE HELL IS THIS POSSIBLE???
 32. big portion / vai: that's too big for a portion, either way they're a MC Server Admin
-33. wellskilled: the only person with da best about me, OK wording
+33. wellskilled: the only person with da best about me, OK wording, "unprofessional modding?"
 34. Spongebob: wait how is this an Indian, said that he comitted tax fraud but in reality didnt
 35. Laurentiu: Romanian wording is certainly impossible for me to understand, contains Vietnamese's wording as well
 36. Icantfixmyname: his name is fixed but got drop tested too many times, and i wanna pat his old pfp
