@@ -110,4 +110,5 @@ can get into bad mood very easily
 87. Lzzgodboy: i thought Plane was Lzzgodboy for some reason
 88. Wolfgang & SnowyJaguar: old mods, but wolfgang likes wolf, 100% not bait, not sure about Jaguar
 89. Tiger: likes vicki, jk
-90. Others: *writes in the issues section*
+90. Jester Cookie: people threaten- wait no, torture him by saying that they'll eat him
+91. Others: *writes in the issues section*
