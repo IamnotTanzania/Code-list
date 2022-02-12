@@ -108,4 +108,6 @@ can get into bad mood very easily
 85. Discord Pedestrian: cannot find info, but can be possibly? found on the MEE6 Leaderboard
 86. Ali: semi-active and is very special for their old roles, jk
 87. Lzzgodboy: i thought Plane was Lzzgodboy for some reason
-88. Others: *writes in the issues section*
+88. Wolfgang & SnowyJaguar: old mods, but wolfgang likes wolf, 100% not bait, not sure about Jaguar
+89. Tiger: likes vicki, jk
+90. Others: *writes in the issues section*
