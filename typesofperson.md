@@ -111,4 +111,5 @@ can get into bad mood very easily
 88. Wolfgang & SnowyJaguar: old mods, but wolfgang likes wolf, 100% not bait, not sure about Jaguar
 89. Tiger: likes vicki, jk
 90. Jester Cookie: people threaten- wait no, torture him by saying that they'll eat him
-91. Others: *writes in the issues section*
+91. WaspVenom / Waxvenom: extremely real villager with very cool trades, and also a super cool mc player
+92. Others: *writes in the issues section*
