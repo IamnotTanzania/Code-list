@@ -113,4 +113,6 @@ can get into bad mood very easily
 90. Jester Cookie: people threaten- wait no, torture him by saying that they'll eat him
 91. WaspVenom / Waxvenom: extremely real villager with very cool trades, and also a super cool mc player
 92. Seto: very nice tag + idk what to say due to rare appearances
-93. Others: *writes in the issues section*
+93. KD: extreme serious Filipino
+94. abbie: allergic to cats
+95. Others: *writes in the issues section*
