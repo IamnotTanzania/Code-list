@@ -115,4 +115,13 @@ can get into bad mood very easily
 92. Seto: very nice tag + idk what to say due to rare appearances
 93. KD: extreme serious Filipino
 94. abbie: allergic to cats
-95. Others: *writes in the issues section*
+95. Yojo: what's this
+96. Tennejkamo: czechian, and got beaned befored
+97. Alexthealex: only OGs will remember
+98. Jella: i dont see him in chat
+99. Dubs: likes music and cuber (the old about me go)
+
+**100. Database.bat**: no (you need to crack the code to understand)
+
+101. stealingcookies: Jester is getting mad about this. jk
+102. Others: *writes in the issues section*
