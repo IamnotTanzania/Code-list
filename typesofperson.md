@@ -81,10 +81,10 @@ can get into bad mood very easily
 58. advaith: very rare chance of chatting, you may be seeing him once and never again
 59. Elevator Girl: doesnt like being ignored, and this is a girl so easily understandable
 60. Verderubro: is this the Jorge they've been talking about?
-61. ruthles_kila: no information can be gathered due to no activities (at least when im on)
+61. ruthles_kila: do u know?
 62. Ray Fultz: probably the oldest person on the list, and likes banana
 63. ʍօtɦɛʀ👠Ꮶʊֆɦ: the person with the MOST complex wording, and still hold the record to this day, and this person is like a new discord user
-64. Danny (the Doggo): is this a real person or a dog that can type
+64. Danny (the Doggo): is now a Baby Yoda, (jk)
 65. Mees: eww nitro
 66. Meeseeks: went to the amazon river so cant gather info
 67. Thomas_muur: you can only see them once and never again like advaith
@@ -124,4 +124,6 @@ can get into bad mood very easily
 **100. Database.bat**: no (you need to crack the code to understand)
 
 101. stealingcookies: Jester is getting mad about this. jk
-102. Others: *writes in the issues section*
+102. Young Gandalf: is very old
+103. DarkHeraldMage: wanted to pop in here but do not have time
+104. Others: *writes in the issues section*
