@@ -127,4 +127,5 @@ can get into bad mood very easily
 102. Young Gandalf: is very old
 103. DarkHeraldMage: wanted to pop in here but do not have time
 104. enzo: wow this person is active unlike the other staff
-105. Others: *writes in the issues section*
+105. Jest: i forgor what my old username was - maybe him. apparently his old name was Paradox after semi-deep research
+106. something funny/Brandon: almost everything i say is a joke - Brandon
