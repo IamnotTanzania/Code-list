@@ -129,3 +129,4 @@ can get into bad mood very easily
 104. enzo: wow this person is active unlike the other staff
 105. Jest: i forgor what my old username was - maybe him. apparently his old name was Paradox after semi-deep research
 106. something funny/Brandon: almost everything i say is a joke - Brandon
+107. Nittle: a vicki-type person but applies every day
