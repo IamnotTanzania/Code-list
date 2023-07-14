@@ -138,7 +138,7 @@ You're right! Card 4 is safe!
 
 □ □ □ □
 
-Don't worry, only 200K Drachmas on the line. You should just walk awau
+Don't worry, only 200K Drachmas are on the line. You should just walk away
 
 GPT: NO!!! Card 2, final answer.
 
